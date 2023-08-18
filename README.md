@@ -1,6 +1,6 @@
 ### Nhà Cái M88
 
-[url=https://m88.fun/]M88[/url] VN Trải nghiệm Thể Thao tuyệt vời cùng Link M88 mới nhất 07 2023! Đăng nhập và tham gia ngay để nhận ưu đãi hấp dẫn từ M88!
+[M88](https://m88.fun/) VN Trải nghiệm Thể Thao tuyệt vời cùng Link M88 mới nhất 07 2023! Đăng nhập và tham gia ngay để nhận ưu đãi hấp dẫn từ M88!
 
 - Địa chỉ: Tân Phú, Quận 7, TPHCM
 
